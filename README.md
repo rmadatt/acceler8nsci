@@ -1,2 +1,2 @@
-# kaiara
-eBook: Learning about successful outcomes for women in business.
+# ACCELERATION SCIENCE
+eBooks on attaining goals
