@@ -1,2 +1,2 @@
 # ACCELERATION SCIENCE
-eBooks on attaining goals
+Studying Business Growth using Advanced Data Science
